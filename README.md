@@ -12,4 +12,3 @@ If it does not with after these previous attempts, please contact me and I will 
 
 Contact - @madisenperez on TG
 
-![image](https://github.com/user-attachments/assets/9d863252-1e12-44f6-a565-47c00dfd45bf)
